@@ -29,7 +29,7 @@ I run AFD Developers and Computers Agency, focusing on delivering high-quality s
   - Twitter: [@iyasirafridi](https://x.com/iyasirafridi)
 
 ## More About Me
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: They/Them
 - ⚡ Fun fact: I love reading books on personal development and success.
 
 Feel free to reach out for collaborations or connections!
